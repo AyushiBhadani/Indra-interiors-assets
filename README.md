@@ -1,0 +1,1 @@
+# Indra-interiors-assets
